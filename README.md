@@ -1,5 +1,5 @@
-Hi i'm tiba
+Hi i'm Tiba
 I'm a programming student. 🤍
 I like to do my studies. 🤍
 I do my best to Enjoy life.. 🤍🌙 to have later...
-My hobby is cooking and Photography
+My hobby is cooking and Photography 🤍......
